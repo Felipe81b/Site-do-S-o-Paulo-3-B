@@ -1,1 +1,0 @@
-# Site-do-S-o-Paulo-3-B
